@@ -7,9 +7,6 @@
 - 🥅 2021 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: Love and Live with Coding & love to read and listen to music
 
-### Spotify Playing 🎧
-
-[<img src="https://cdn.dribbble.com/users/2470755/screenshots/7123360/media/8ca5663fe5ccb64e2d9046e1e7943e31.gi" alt="Spotify Playing" width="350" />](https://open.spotify.com/user/swyqyimdc12jajde4vpwd2x1b)
 
 ### Connect with me:
 
